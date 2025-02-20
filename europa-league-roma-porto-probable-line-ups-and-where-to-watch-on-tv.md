@@ -2,6 +2,8 @@
 
 Porto vs Roma live stream: How to watch Europa League game online and on TV today. Today's Porto vs Roma live stream in the first leg of the Europa League playoff will see the winner make a big step towards the last 16— and you can watch the Porto vs Roma live stream from anywhere with a VPN.
 
+### [CLICK HERE TO GET NOW LIVE](https://trusthubmedia.com/app/aff/go/watchtvhere?i=1)
+
 Both Porto and Roma took victories on Matchday 8 of the Europa League group phase, not enough to go straight to the last 16 but ensuring they made the playoff round after finishing 18th and 14th respectively in the 36 team table.
 
 Claudio Ranieri's Roma come into the game on the back of a 1-0 win over Venezia in Serie A, where they are ninth in the table. Porto, meanwhile, drew 1-1 with rivals Sporting Lisbon last time out and sit third in the Liga Portugal.
