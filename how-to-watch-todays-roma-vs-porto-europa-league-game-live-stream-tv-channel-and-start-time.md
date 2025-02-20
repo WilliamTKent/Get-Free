@@ -2,6 +2,8 @@
 
 Where to watch FC Porto vs. AS Roma, lineups: UEFA Europa League live stream, odds, prediction, pick. FC Porto will host AS Roma on Thursday for the first leg of the UEFA Europa League playoff ahead of the Round of 16 in the knockout stages.
 
+### [CLICK HERE TO GET NOW LIVE](https://trusthubmedia.com/app/aff/go/watchtvhere?i=1)
+
 The winning side of the tie can potentially meet Lazio in the next round, with a possible Derby della Capitale to take place, if Claudio Ranieri's side manages to beat Porto. There was only a one-point difference between the two teams in the league phase, as Roma ended up in 15th place with 12 points, while the home side finished 18th with 11 points in eight games. Here's what you need to know:
 
 How to watch and odds
